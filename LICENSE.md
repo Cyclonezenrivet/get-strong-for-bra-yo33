@@ -1,4 +1,4 @@
-
+get strong for brainrots premium Scripts is the best get strong for brainrots Script, featuring infinite resources and one-hit kill. Safe and
 
 
 
